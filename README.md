@@ -19,6 +19,6 @@ Outside of coding, I enjoy exploring events, learning something new, and discove
 
 ## 📫 Contact Me
 
- Email: dasocode@gmail.com
+ [Email me](mailto:maryamyuf@gmail.com)
  [LinkedIn](https://uk.linkedin.com/in/maryam-yusuf)
  [Portfolio](https://www.dasocodes.com/)
